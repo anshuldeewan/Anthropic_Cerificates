@@ -1,1 +1,1 @@
-href (https://verify.skilljar.com/c/vve5g84zv665)
+https://verify.skilljar.com/c/vve5g84zv665
